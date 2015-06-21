@@ -5,6 +5,7 @@ title = "The Weight of Glory"
 +++
 
 I was recently co-leading a Bible study for teen workers at [Morning Star Bible Camp](http://www.morningstarbiblecamp.com). It was a great opportunity to stop and think about what's really important in the Christian life. We decided to focus on discipleship - which, of course, is a pretty broad topic. One of the discussions we had was around counting the cost of being a disciple. 
+<!--more-->
 
 Luke 14:25-35 (NIV) puts it pretty bluntly:
 

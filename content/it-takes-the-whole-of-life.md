@@ -6,7 +6,7 @@ title = "It Takes the Whole of Life"
 
 I got reading a bit of Seneca’s [On the Shortness of Life](http://en.wikisource.org/wiki/On_the_shortness_of_life) this afternoon. Seneca was a Stoic philosopher, meaning that he belonged to a camp that “preached freedom from passion by following reason” ([Wikipedia](http://en.wikipedia.org/wiki/Stoicism)).
 
-Seneca’s main point is that it’s pointless to complain about how short life is. Life, he says, is plenty long enough; the main problem is that we waste most of it. It’s a valid point, from my way of thinking at least. Seneca’s suggestion, of course, is that we’d do a lot better with things if we just spent all our time studying philosophy. As much as I like philosophy, I don’t think that’s the example Jesus would have us follow, however.
+Seneca’s main point is that it’s pointless to complain about how short life is. Life, he says, is plenty long enough; the main problem is that we waste most of it. <!--more--> It’s a valid point, from my way of thinking at least. Seneca’s suggestion, of course, is that we’d do a lot better with things if we just spent all our time studying philosophy. As much as I like philosophy, I don’t think that’s the example Jesus would have us follow, however.
 
 What particularly struck me, though, was a comment buried way down in the middle of Chapter 7. Seneca says:
 
