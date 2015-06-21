@@ -1,8 +1,0 @@
-baseurl = "http://faith.rosborough.ca/"
-languageCode = "en-us"
-title = "Dave Rosborough"
-theme = "hyde"
-
-[params]
-  description = "Thoughts on faith, the Bible, and discipleship."
-  copyright = "Copyright © 2015 Dave Rosborough.  All Rights Reserved."
