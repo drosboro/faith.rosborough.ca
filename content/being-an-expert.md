@@ -1,6 +1,6 @@
 +++
 date = "2011-12-11T12:00:00-07:00"
-draft = true
+draft = false
 title = "Being an Expert"
 
 +++
