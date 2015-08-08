@@ -58,9 +58,9 @@ Look back through those verses I quoted above, and I think you'll see what it is
 
 I want to be like David.  I want my love for God to be so deep, so intense, so intentional that his Word becomes something I desire, something I am consumed with longing for, something I love.  Maybe I'm not there yet.  I still struggle through some passages at times - I struggle to see the _person_ behind the words as clearly as David did.
 
-I really want to be the kind of person who, when asked "Name one thing you never tire of", would be able to say with David:
+I really want to be the kind of person who, when asked to "name one thing you never tire of", would be able to say with David:
 
-> Your testimonies are my heritage forever, for they are the joy of my heart. - Psalm 119:111
+> Therefore I love your commandments above gold, above fine gold. - Psalm 119:127
 
 _Lord, help me love your Word - but not just because of the words themselves.  Help me to love your Word because I love you._
 
