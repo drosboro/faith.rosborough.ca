@@ -14,7 +14,7 @@ So, what do you never get tired of?
 
 Interestingly, in the few minutes I listened, no one mentioned a _person_.  Not their kids (just their laughter), not their spouse, not their parents, not their significant other.  Perhaps because it's easy to get tired of people - we're not perfect.  I, for one, can be a bit annoying at times.  It's probably pretty tough to _not_ get tired of me once in a while.
 
-I'd like to say I was surprised that no one mentioned anything to do with God - but really, I wasn't really expecting much.  Church didn't come up.  Maybe that's because church is filled with _people_ again.  Jesus wasn't mentioned - maybe that would have been too spiritual.  The book of Leviticus wasn't high on the list.
+I'd like to say I was surprised that no one mentioned anything to do with God - but really, I wasn't expecting much.  Church didn't come up.  Maybe that's because church is filled with _people_.  Jesus wasn't mentioned - maybe that would have been too spiritual.  The book of Leviticus wasn't high on the list.
 
 King David may have actually been surprised by that last omission.  Psalm 119, after all, is essentially a love song to the Law of God.  Listen to some of the language David uses to describe the Law:
 
@@ -50,13 +50,16 @@ He keeps going - but I think you get the idea.  Here is a man using the sort of 
 
 Why?  How?
 
-As a teenager, I was stymied several times in my attempt to read through the Bible - mostly by these very passages that David is writing love songs about.  What is the key to David's passion for the Word?
+As a teenager, I was stymied several times in my attempt to read through the Bible - mostly by these very passages that David is writing love songs about.  I didn't love them - they were _boring_.  Perhaps you might agree with me.  Maybe we harbour a suspicion that David is applying a bit of poetic license - maybe we think he's exaggerating just a little.  I mean, really - "I open my mouth and pant, because I long for your commandments"?
 
-Look back through those verses I quoted above, and I think you'll see what it is.  Specifically, look for the word right _before_ "law", or "testimonies", or "statutes".  Each and every time, in these verses, it points to a _person_.  It's not "the law", it's "your law".  Not "some testimonies", or "those statutes" - it's "your testimonies", "your statutes".  Behind the law is the giver of the Law.  David's longing, his desire, his love for God's Word stems from his love for God himself.  I have no interest in reading a letter written by someone I don't know - unless perhaps that person is famous, and I know _of_ them a bit.  But show me a letter written to me by my wife, and you bet I want to read it - I may even keep it in a box and pull it out periodically to re-read it.  I love that letter, because _she_ wrote it.
+Given the content of the rest of David's written output, and the things written elsewhere about his life, it's a pretty tough argument to claim that he's just faking it.  We have no real reason to believe that he's lying, other than a sense of incredulousness arising from our own shortcomings.  But what motivates David's passion for the Word?
 
-I want to be like David.  I want my love for God to be so deep, so intense, so intentional that his Word becomes something I desire, something I am consumed with longing for, something I love.  Maybe I'm not there yet.  I still struggle through some passages at times - I struggle to see the _person_ behind the statutes as clearly as David seemed to.
+Look back through those verses I quoted above, and I think you'll see what it is.  Specifically, look for the word right _before_ "law", or "testimonies", or "statutes".  Each and every time, in these verses, it points to a _person_.  It's not "the law", it's "your law".  Not "some testimonies", or "those statutes" - it's "your testimonies", "your statutes".  Behind the law is the giver of the Law.  David's longing, his desire, his love for God's Word stems from his love for God himself.  I have no interest in reading a letter written by someone I don't know - maybe a little if the author is famous, and I know _of_ them a bit.  But show me a letter written to me by my wife, and you bet I want to read it - I may even keep it filed away and pull it out periodically to re-read it.  I love that letter, because _she_ wrote it, and I love her.
+
+I want to be like David.  I want my love for God to be so deep, so intense, so intentional that his Word becomes something I desire, something I am consumed with longing for, something I love.  Maybe I'm not there yet.  I still struggle through some passages at times - I struggle to see the _person_ behind the words as clearly as David did.
 
 I really want to be the kind of person who, when asked "Name one thing you never tire of", would be able to say with David:
 
 > Your testimonies are my heritage forever, for they are the joy of my heart. - Psalm 119:111
 
+_Lord, help me love your Word - but not just because of the words themselves.  Help me to love your Word because I love you.  Incline my heart to your testimonies, and not to selfish gain! Turn my eyes from looking at worthless things; and give me life in your ways. (Psalm 119:36-37)  Amen._
