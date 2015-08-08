@@ -62,4 +62,8 @@ I really want to be the kind of person who, when asked "Name one thing you never
 
 > Your testimonies are my heritage forever, for they are the joy of my heart. - Psalm 119:111
 
-_Lord, help me love your Word - but not just because of the words themselves.  Help me to love your Word because I love you.  Incline my heart to your testimonies, and not to selfish gain! Turn my eyes from looking at worthless things; and give me life in your ways. (Psalm 119:36-37)  Amen._
+_Lord, help me love your Word - but not just because of the words themselves.  Help me to love your Word because I love you._
+
+_Incline my heart to your testimonies, and not to selfish gain! Turn my eyes from looking at worthless things; and give me life in your ways. (Psalm 119:36-37)_
+
+_Amen._
